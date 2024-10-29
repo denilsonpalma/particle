@@ -1,0 +1,1 @@
+# Partilhe : ferramenta de anotações
